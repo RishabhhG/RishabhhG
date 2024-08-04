@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **hydrarishabh9@gmail.com**
 
-- 📄 Know about my experiences [http://lnkiy.in/rishabhresume](http://lnkiy.in/rishabhresume)
+- 📄 Know about my experiences [http://lnkiy.in/rishabhresume](https://drive.google.com/file/d/1Z7I8VZD84Tca3v5O-atADIRpJbFgpfAs/view?usp=drive_link)
 
 - ⚡ Fun fact **What is the best way to become a programmer? -- Ctrl+C, Ctrl+V**
 
