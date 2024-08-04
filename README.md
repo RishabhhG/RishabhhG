@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **Web development**
 
-- 📫 How to reach me **hydrarishabh9@gmail.com**
+- 📫 How to reach me **rishabhh0807@gmail.com**
 
 - 📄 Know about my experiences [http://lnkiy.in/rishabhresume](https://drive.google.com/file/d/1Z7I8VZD84Tca3v5O-atADIRpJbFgpfAs/view?usp=drive_link)
 
